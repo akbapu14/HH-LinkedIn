@@ -8,6 +8,7 @@ LinkedIn Profiles of Hackathon Hackers Facebook group members
 - [Andy Tran](https://www.linkedin.com/in/andyhqtran)
 - [Anwar Ali-Ahmad](https://www.linkedin.com/in/anwaraliahmad)
 - [Arjit Bhargava](https://www.linkedin.com/pub/arjit-bhargava/84/533/88b)
+- [Akilesh Bapu] (https://www.linkedin.com/in/akileshbapu)
 - [Arnold Ewin](https://www.linkedin.com/in/arnoldewin)
 - [Aruna Srinivasiah](https://www.linkedin.com/pub/aruna-srinivasiah/60/2b0/b33)
 - [Arush Kakkar](https://www.linkedin.com/in/arushkakkar)
